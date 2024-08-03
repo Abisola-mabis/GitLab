@@ -1,1 +1,1 @@
-Be the change you wish to see in the worldg
+Be the change you wish to see in the world
